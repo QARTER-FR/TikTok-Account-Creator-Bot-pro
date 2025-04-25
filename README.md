@@ -24,6 +24,8 @@
 ### 📞 Contact
 [👉 Message us on Telegram](https://t.me/danirueaq)
 
+telegram channel : https://t.me/toolsgiie
+
 ---
 
 ## 🧠 中文版本
